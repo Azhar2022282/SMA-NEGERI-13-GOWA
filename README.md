@@ -1,2 +1,0 @@
-# SMA-NEGERI-13-GOWA
-Website SMAN 13 Gowa
